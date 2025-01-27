@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the universe and beyond.
 - 📫 How to reach me the obvious ways. 
 - 😄 Pronouns: me, myself, and I
-- ⚡ Fun fact: 😁 Whst did the Mushroom say to the bartender? You're not a fun guy. 
+- ⚡ Fun fact: 😁 What did the Mushroom say to the bartender? You're not a fun guy. 
 
 <!---
 Innanas1/Innanas1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
